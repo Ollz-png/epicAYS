@@ -1,0 +1,1 @@
+"im bored, IM GONNA PLAY A RHYTHM GAME"
